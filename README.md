@@ -1,1 +1,1 @@
-Nullzero all rights reserverd.
+Nullzero all rights reserverd
